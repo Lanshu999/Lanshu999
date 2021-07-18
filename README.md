@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lanshu.
+- 👀 I’m interested in finding loopholes,but I don't mean anything.
+- 🌱 I'm learning C + +, Java and python. Can you say that learning so much is not messy? But I think I'm still young now. I want to try more and choose my favorite language to learn.
+- 💞️ //I’m looking to collaborate on ...
+- 📫 My contact information: QQ: 3409223587, please indicate the intention, otherwise not through. 
